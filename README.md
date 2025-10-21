@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, I am Seijin Tony 👋 🙂 💻
 
 <!--
 **seijintony062800/seijintony062800** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
